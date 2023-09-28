@@ -8,4 +8,4 @@ eu sou o wellington
 
 - wellington.generozo.cota@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/gojo-gojo-satoru-gojo-season-2-shibuya-incident-jujutsu-kaisen-gif-105956634505265534)
+![image](https://github.com/wellington123455/wellington123455/assets/135137029/75889bdd-462a-4587-870d-ebe45d1666f2)
