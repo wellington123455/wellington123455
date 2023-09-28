@@ -8,4 +8,4 @@ eu sou o wellington
 
 - wellington.generozo.cota@escola.pr.gov.br
 
-![](https://media.tenor.com/HZkbMH4EcboAAAAC/maou-gakuin-anos-voldigoad.gif)
+![](https://tenor.com/pt-BR/view/gojo-gojo-satoru-gojo-season-2-shibuya-incident-jujutsu-kaisen-gif-105956634505265534)
