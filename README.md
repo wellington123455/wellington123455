@@ -8,5 +8,5 @@ eu sou o wellington
 
 - wellington.generozo.cota@escola.pr.gov.br
 
-![.](https://tenor.com/pt-BR/search/shadow-the-hedgehog-gifs)
+![.](https://tenor.com/pt-BR/view/shadow-the-hedgehog-shadow-sonic-x-shadow-sonic-x-shadow-generations-sonic-the-hedgehog-gif-3240130179243136294)
 
