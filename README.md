@@ -8,4 +8,5 @@ eu sou o wellington
 
 - wellington.generozo.cota@escola.pr.gov.br
 
-![.](https://media.tenor.com/AXhu_2lIQX4AAAAC/gojo-gojo-satoru.gif)
+![.](https://tenor.com/pt-BR/search/shadow-the-hedgehog-gifs)
+
